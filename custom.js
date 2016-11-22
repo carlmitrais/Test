@@ -24,3 +24,4 @@ Please joinning the session so we can try at least.
 Please do the absent!!!
 
 And Join the show!!!
+Let's THE SHOW BEGINNNN!!!!!
